@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MessiGd
+- 👋 Hi i am Jayesh Mahajan
 - 👀 I’m interested in Coding and Soccer
 - 🌱 I’m currently learning Coding
 
